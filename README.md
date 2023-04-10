@@ -20,7 +20,7 @@ Lesão corporal Gravissima - Artigo 129, § 2º
 - Aborto 
 - Pena – 2 a 8 anos de reclusão
 
-Lesão corporal com resultado morte  - Artigo 129, § 3o
+Lesão corporal com resultado morte  - Artigo 129, § 3
 - Para configurar o crime, deve ficar claro que o autor não queria a morte, nem assumiu o risco de causá-la.
 - Pena – 4 a 12 anos de reclusão
  
